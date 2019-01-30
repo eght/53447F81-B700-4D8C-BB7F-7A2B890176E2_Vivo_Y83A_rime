@@ -1,0 +1,2 @@
+# 53447F81-B700-4D8C-BB7F-7A2B890176E2_Vivo_Y83A_rime
+Rime Input Method
